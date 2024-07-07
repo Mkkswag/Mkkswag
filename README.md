@@ -1,0 +1,7 @@
+- 👋 Hey, I’m Mkk
+- 👀 I’m interested in art,and music (not making music just listening)
+- 🌱 I’m currently learning nothin
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me tiktok: mkkz348
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: 🤷🏾‍♀️
